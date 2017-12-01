@@ -1,1 +1,0 @@
-# GeoTogether-Mockups-Design
